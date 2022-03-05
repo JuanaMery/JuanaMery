@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JuanaMery
-- 👀 I’m interested in Data Analysis，Economy，Bio-Science and Crypto #Bitcoin
+- 👀 I’m interested in Data Analysis，Economy，Bioscience and Crypto
 - 🌱 I’m currently learning Music
 - 💞️ I’m looking to collaborate on companies like Google，Merck
 - 📫 How to reach me
