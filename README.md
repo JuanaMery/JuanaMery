@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JuanaMery
-- 👀 I’m interested in Data Analysis，Economy，BioScience and Crypto
+- 👀 I’m interested in Data Analysis
 - 🌱 I’m currently learning Music
 - 💞️ I’m looking to collaborate on companies like Google，Merck
 - 📫 How to reach me wzy07290219@gmail.com
